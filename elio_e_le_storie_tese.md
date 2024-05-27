@@ -42,35 +42,59 @@ The band has also been the first one, in 2004, to sell instant CDs of their live
 ## Line–ups
 ### Members
 Stefano Belisari a.k.a. Elio – lead vocals, transverse flute, electric guitar, electric bass
+
 Sergio Conforti a.k.a. Rocco Tanica – vocals, keyboards, electronic drums, piano
+
 Nicola Fasani a.k.a. Faso – electric bass, backing vocals
+
 Davide Civaschi a.k.a. Cesareo – electric guitar, backing vocals
+
 Christian Meyer – drums, percussion
+
 Antonello Aguzzi a.k.a. Jantoman – keyboards, backing vocals (member since 1999)
 ### "Unofficial" members
 Luca Mangoni – backing vocals, occasional lead vocals, onstage dancing
+
 Paola Folli – backing vocals
+
 Vittorio Cosma a.k.a. Clayderman Viganò – keyboards, backing vocals
 ### Past members
 Paolo Panigada a.k.a. Feiez or Mu Fogliasch (deceased in 1998) – backing vocals, saxophone, percussion, electric bass, guitar
 ## Discography
 ### Studio albums
 Elio samaga hukapan kariyana turu (1989)
+
 The Los Sri Lanka Parakramabahu Brothers Featuring Elio e le Storie Tese (1990)
+
 İtalyan, rum casusu çikti (1992)
+
 Esco dal mio corpo e ho molta paura: Gli inediti 1979–1986 (1993)
+
 Eat the Phikis (1996)
+
 Peerla (1998)
+
 Craccracriccrecr (1999)
+
 Cicciput (2003)
+
 Studentessi (2008)
+
 L'album biango (2013)
+
 Figgatta de Blanc (2016)
+
 ### Live albums
 Made in Japan (2001)
+
 Il meglio di Ho fatto due etti e mezzo, lascio? (2004, box)
+
 Il meglio di Grazie per la splendida serata (2005, box)
+
 Cosi se vi pare (2006)
+
 Enlarge Your Penis - Live 2012 (2012)
+
 Il meglio di Emozioni Fortissime Tour 2007 (2013)
+
 Arrivedorci (2018)
