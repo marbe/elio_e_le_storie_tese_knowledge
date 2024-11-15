@@ -178,6 +178,6 @@ document_outline: |
   history, characteristics, and features of the band.
 document:
   repo: https://github.com/marbe/elio_e_le_storie_tese_knowledge.git
-  commit:
+  commit: ae29acd64291a701d24f187f6586bfdb32131202
   patterns:
     - eelst_overview.md
